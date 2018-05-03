@@ -2,6 +2,6 @@
 
 Most of my original music can be found on my SoundCloud.
 
-Like this track that reminds you not to drown and features an organ solo, and not one but two guitar solos. Don't take my word for it when you can listen yourself!
+Like this track about a City Adventure with nice melodies and groovy riffs.
 
 <a href="https://soundcloud.com/poetkoe" target="blank">Listen to awesome music here!</a>
